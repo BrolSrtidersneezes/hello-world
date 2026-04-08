@@ -2,7 +2,7 @@
 
 Please read!! XO
 
-<img src="https://i.pinimg.com/originals/cb/2b/d1/cb2bd1e53d29b0fcc6d9b739ca08af98.gif![image](https://github.com/user-attachments/assets/e3cdca44-a40c-43c4-8ac6-8c99602d79dc)">
+<img src="https://c.tenor.com/XKaRKskZbAIAAAAC/inugami-korone-vtuber.gif![image](https://github.com/user-attachments/assets/8586d3b1-3109-4142-8fd3-670bcdc15b89)">
 
 Hello I'll be writing things about myself!!
 
