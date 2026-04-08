@@ -8,7 +8,7 @@ Hello I'll be writing things about myself!!
 
 My Name is Sofia. I'm 17 years old!!
 
-<img src="https://24.media.tumblr.com/tumblr_ly7qe5SzAx1rnku50o1_500.gif![image](https://github.com/user-attachments/assets/ccb9c729-f98c-4540-9892-957f8cca2a10)"> 
+<img src="https://media.tenor.com/c8NdPfXCSV0AAAAM/tcm-the-texas-chainsaw-massacre.gif![image](https://github.com/user-attachments/assets/84644d99-f0e1-461f-939e-dab4a18750a6)"> 
 
 My main fandoms: Homestuck, My Little Pony, Texas Chainsaw Massacre 
 
